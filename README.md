@@ -1,1 +1,1 @@
-beast mode: activated ✔️
+beast mode: ✔️
